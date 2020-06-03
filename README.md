@@ -6,4 +6,13 @@ Bayar Lebih Mudah
 <br/><i> Binggung Dengan Pembayaran💳 Bayar Di 👇 aja
 <i/>
 
+
+----
+
 [Paypal](https://github.com/Klik-Organisasi/LAZADA/blob/master/Scrip.java)
+
+
+----
+
+
+https://ad.atdmt.com/c/img;adv=11162240857546;ec=11162243355720;adv.a=%eadv!;c.a=%ebuy!;s.a=%esid!;p.a=%epid!;a.a=%eaid!;cache=%n;qpb=1;?h=
